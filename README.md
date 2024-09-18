@@ -6,7 +6,7 @@
 
 🎹 Outside of tech, I love to play piano, train martial arts, and compete in gaming tournaments for Starcraft 2.
 
-📫 I'm currently looking for work and love collaborating on projects, so don't hesitate to reach out at: gfern794@gmail.com
+📫 I love collaborating on projects, so don't hesitate to reach out at: gfern794@gmail.com
 
 Skills:
 
